@@ -1,0 +1,2 @@
+# pendtoffa-ngekngok
+ ngekngok sebutan pantai seng diarani pantai nyar ditemokne rombongan lelaki pendtoffa. iki sarono ngikuti instruksi sesat e si kowoc hamdani seng jarena kudu mlipir nengen. Nah, unike awale pengen ngecamp tengah pulau sembu (tujuan awal) ming gegara budal telat berakibat ora iso nyeberang lan ngecamp pinggir pantai. pas ngecamp udan lan tendane trocoh akhire ngumpul dadi siji ng sak tendo.
